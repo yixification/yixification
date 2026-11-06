@@ -1,4 +1,5 @@
-<img width="800" height="450" alt="image" src="https://github.com/user-attachments/assets/f560985e-0646-4d2a-89c2-599794329c03" />
+<img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/fa2bda99-c93a-45c1-83b0-c5cedb903d15" />
+
 
 xiomara / jordyn   she/him lesbian 
 
